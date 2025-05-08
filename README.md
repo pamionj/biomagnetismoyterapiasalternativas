@@ -1,1 +1,1 @@
-﻿# biomagnetismo y terapias alternativas
+﻿# sitio web https://biomagnetismoyterapiasalternativas.cl/
