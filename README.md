@@ -1,1 +1,2 @@
-﻿# sitio web https://biomagnetismoyterapiasalternativas.cl/
+﻿# sitio web de un proyecto antiguo.
+
